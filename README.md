@@ -1,2 +1,2 @@
-# nayna.github.com
-Nayna premium DISHWASH.
+NAYNA DISHWASH.
+NAYNA PREMIUM DISHWASH.
